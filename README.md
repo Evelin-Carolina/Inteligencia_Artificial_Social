@@ -1,0 +1,2 @@
+# Inteligencia_Artificial_Social
+Bullying Adotivo
